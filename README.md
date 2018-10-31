@@ -1,1 +1,1 @@
-Testowe readme! 
+Kamil Januszkiewicz
